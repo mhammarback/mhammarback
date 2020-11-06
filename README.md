@@ -6,7 +6,7 @@
  - 🌲 I have 8 years of work experience in service and 2 years in security.
  - 🔥 Personal development is important to me. 
  - ⚡ Fun fact: I run obstacle course races!
- - 📬 Contact me on LinkedInn: https://www.linkedin.com/in/moa-hammarb%C3%A4ck/
+ - 📬 Contact me on LinkedInn: https://www.linkedin.com/in/moa-hammarbäck/
 
 
 
